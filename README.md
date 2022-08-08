@@ -1,6 +1,6 @@
 - ✍🏻 Oi, me chamo gabriela
 - 🌸 Tenho interesse em criar jogos de computação
-- 🙋🏻‍♀️ meu email de contato é @gabriela.figueredode.carvalho@escola.pr.gov.br
+- 🙋🏻‍♀️ meu email de contato é gabriela.figueredode.carvalho@escola.pr.gov.br
 - ✨ Tenho 15 anos
 - 📌 Estudo no Colégio de Aplicação pedagógica da UEM
 
